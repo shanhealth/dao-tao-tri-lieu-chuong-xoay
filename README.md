@@ -76,6 +76,7 @@
 <p dir="ltr">Email: shanhealthspa@gmail.com</p>
 
 <p dir="ltr">Hotline: 0973.46.46.41</p>
+<p dir="ltr">https://www.google.com/maps/d/u/0/viewer?ll=10.845392535176579%2C106.66877965&z=18&mid=1SFQzHd5Ka4mZZwFTNuJkDKtj2TXSNOw</p>
 
 <p dir="ltr">Liên kết mạng xã hội:</p>
 
