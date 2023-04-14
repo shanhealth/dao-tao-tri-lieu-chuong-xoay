@@ -1,4 +1,3 @@
-<p dir="ltr">Khóa Đào Tạo Trị Liệu Chuông Xoay Chuyên Nghiệp Tại Shan Health</p>
 <p dir="ltr">Bạn muốn hiểu hơn về chuông xoay Himalaya và ứng dụng trị liệu cho mình, cho nhiều người khác? Bạn có muốn trở thành một nhà trị liệu chuông xoay Himalaya chuyên nghiệp? Bạn mong muốn lan tỏa phương pháp trị liệu tuyệt vời này đến nhiều người hơn nữa? Khóa <strong>đào tạo trị liệu chuông xoay</strong> được đào tạo chuyên sâu bởi Shan Health sẽ đáp ứng tất cả những mong muốn đó. Mọi thông tin chi tiết về khóa đào tạo của <strong>Shan Health</strong> mời bạn đọc theo dõi qua bài viết sau đây.</p>
 
 <h2 dir="ltr">Giới thiệu đôi nét về khóa đào tạo trị liệu chuông xoay Shan Health</h2>
